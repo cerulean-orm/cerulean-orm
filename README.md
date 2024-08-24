@@ -15,7 +15,7 @@ find me at:
 - [neocities](https://ormulum.neocities.org/), for games, reading lists, writing, everything
 - [final outpost](https://finaloutpost.net/visit/olmin), give me clicks!
 
-pronouns: she/her/it/its
+pronouns: she/her
 
 fun fact: i had aspirations of being an artist, a linguist, a new media pioneer. now i work for the man! :(
 <!---
