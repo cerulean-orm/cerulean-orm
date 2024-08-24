@@ -1,4 +1,4 @@
-hey! i'm @cerulean-orm! big dork in southeast australia pursuing a data science degree. i love statistics. i love data so much i want to eat it all up.
+hey! i'm @cerulean-orm! big dork in southeast australia pursuing a data science degree. i love statistics. i love data. i love it all so much i want to eat it all up.
 
 i'm interested in:
 - statistics and r
